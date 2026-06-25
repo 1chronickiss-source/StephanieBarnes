@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Stephanie Barnes!
+# 👋 Hi, I'm Stephanie Barnes..Soon to be Woodson (I said, YES!!💍!)
 
 ![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&pause=1000&color=F75CFF&width=600&lines=Software+Development+Student;Aspiring+Full-Stack+Developer;Future+Tech+Professional;Always+Learning+%26+Building)
 
